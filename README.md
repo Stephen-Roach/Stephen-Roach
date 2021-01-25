@@ -14,7 +14,7 @@
 Software Engineer 💻 | Traveler ✈️ | Hiker🏔 | Coffee ☕️ | Photography 📸 “Let us step into the night and pursue that flighty temptress, adventure.”⚡️
 <br />
 
-Growing up as a kid I always told myself that I really thought I could do anything, as long as I had Google to help me figure it out. I guess it's safe to say
+Growing up as a kid I always told myself that I thought I could do anything, as long as I had Google to help me figure it out. I suppose it's safe to say
 that I feel right at home!
 
 ### A little about me!

@@ -18,7 +18,7 @@ Growing up as a kid I always told myself that I thought I could do anything, as 
 that I feel right at home!
 
 ### A little about me!
-I am Full-Stack Engineer who will be graduating from DigitalCrafts Full Stack Development Bootcamp in January! 
+I am Full-Stack Engineer who graduated from DigitalCrafts Full Stack Development Bootcamp! 
 
 I am passionate about the web and all things technology. Creative Software Engineer with the ability to pick up new languages and technologies as needed. I primarily enjoy working in a team, sharing ideas, learning and problem-solving.
 
